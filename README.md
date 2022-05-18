@@ -1,2 +1,2 @@
-20180883 kim jung min
+kim jung min 20180883
 Kookmin Univ
